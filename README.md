@@ -1,0 +1,1 @@
+# zagraj.my-speedrun-cheat
